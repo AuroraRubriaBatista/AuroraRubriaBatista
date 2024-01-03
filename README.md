@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AuroraRubriaBatista.
+- 👀 I’m interested in reading, sleeping, eating, studying ...
+- 🌱 I’m currently learning Language R and Python.
+- 📫 How to reach me: aurorarubriabatistalola@gmail.com
